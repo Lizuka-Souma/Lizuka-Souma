@@ -15,6 +15,8 @@ _____-_-____--_-----____-__-_-_--__---___-_____-_-_-_--__-____---__--_-_-___--__
 - Idk how to handle when people vent. I'll talk with you but its not gonna be the best u can do
 - Kys / kms jokes aren't funny
 - hobbies are hobbies and i would love to 100% hear bout yours.
+- Posted up at the kdrama / marvel area
+- I will 100% respect boundaries 
 
 
 pls Dragon City pls give me this bro pls bro🙏🏼
