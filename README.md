@@ -1,6 +1,6 @@
 <p align="center">${\color{pink}\Huge{\texttt{Leah / Soo-jin}}}$</p>
 
-**<p align="center">14 (June X , 2011) || Straight || She/her || Extrovert || Korean + Italian + English (Maybe a lil Chinese? Cant speak it fluently but its average)</p>**
+**<p align="center">14 (June X , 2011) || Straight || She/her || Extrovert || Korean + Italian + English (Maybe a lil Chinese? Cant speak it fluently but its average) || extrovert || Native American</p>**
 
 🩵 = Likes
 
