@@ -12,6 +12,7 @@ Some quick things about me:
 
 ${\color{pink}\Huge{\texttt{Byi}}}$
 
-I get kinda dry after awhile of knowing someone. It's not anything against you its just thats how I am really tbh idk what to tell you. I don't show my mood based off how I text. If my text are blunt then it dosen't mean im upset or nun. I'm also not someone you'd wanna vent to. I would try to comfort you but its not to much u feel me. Idgaf if your white, black, asian, hispanic ect, straight, gay, lesbian, trans, ect brooooo. I'm not looking for friends to make me look good. I'm looking for friends that'll be with me no matter what.
+I know this sounds stupid, but if you play ponytown then intwec. I play ponytown, but I mind my buisness. Most ponytown players are the most toxic and annoying people you'll ever meet fr. If it ain't somebody harrassing or being judgemental of others bc of their style, unproblematic cosplay or just bullying kids in general, thens its mfs lowk being mad disgusting and doing and saying 18+ things on the SAFE SEVER...Literally stop riding peoples dick and get a fucking life instead of being an asshole and a pervert fr LMAOOOOOO
 
-I really love Asian culture and greek mythology. I've been a fan of asian culture since I was a kid bc of ninjago and tmnt lmaooo
+I'm always just walking around on Ponytown or sitting in an empty space and offtab.
+
